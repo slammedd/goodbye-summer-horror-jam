@@ -25,3 +25,9 @@ https://freesound.org/people/toxicwafflezz/sounds/150839/
 
 Paquete de modelos low poly estilo psx by Elbolilloduro on itch.io:
 https://elbolilloduro.itch.io/objetos-low-poly-estilo-psx
+
+Good Sky by Uneasy Game Dev on Epic Marketplace:
+https://www.unrealengine.com/marketplace/en-US/product/good-sky
+
+Paquete de modelos psx 3 by Elbolilloduro on itch.io:
+https://elbolilloduro.itch.io/paquete-de-modelos-psx-3
