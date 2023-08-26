@@ -22,3 +22,6 @@ https://screamingbrainstudios.itch.io/tiny-texture-pack-2
 
 Bullet_Impact_3 by toxicwafflezzz on freesound.org:
 https://freesound.org/people/toxicwafflezz/sounds/150839/
+
+Paquete de modelos low poly estilo psx by Elbolilloduro on itch.io:
+https://elbolilloduro.itch.io/objetos-low-poly-estilo-psx
