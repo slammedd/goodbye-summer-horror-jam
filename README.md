@@ -19,3 +19,6 @@ https://doctor-sci3nce.itch.io/psx-shotgun-asset-pack
 
 Tiny Texture Pack 2 by Screaming Brain Studios
 https://screamingbrainstudios.itch.io/tiny-texture-pack-2
+
+Bullet_Impact_3 by toxicwafflezzz on freesound.org:
+https://freesound.org/people/toxicwafflezz/sounds/150839/
