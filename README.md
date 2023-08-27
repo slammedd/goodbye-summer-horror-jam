@@ -31,3 +31,9 @@ https://www.unrealengine.com/marketplace/en-US/product/good-sky
 
 Paquete de modelos psx 3 by Elbolilloduro on itch.io:
 https://elbolilloduro.itch.io/paquete-de-modelos-psx-3
+
+Objects_Interior(Village)_Alpha by Elbolilloduro on itch.io
+https://elbolilloduro.itch.io/objects-interiorvillage-alpha
+
+PSX cardboard boxes by Dragon1Freak on itch.io
+https://dragon1freak.itch.io/psx-cardboard-boxes
