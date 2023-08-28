@@ -41,3 +41,5 @@ https://dragon1freak.itch.io/psx-cardboard-boxes
 Retro PSX Nature Pack by elegantcrow on itch.io
 https://elegantcrow.itch.io/retro-psx-nature-pack
 
+PSX Horror puzzle item pack by joscanper on itch.io
+https://joscanper.itch.io/psx-horror-puzzle-item-pack
