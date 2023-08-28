@@ -37,3 +37,7 @@ https://elbolilloduro.itch.io/objects-interiorvillage-alpha
 
 PSX cardboard boxes by Dragon1Freak on itch.io
 https://dragon1freak.itch.io/psx-cardboard-boxes
+
+Retro PSX Nature Pack by elegantcrow on itch.io
+https://elegantcrow.itch.io/retro-psx-nature-pack
+
