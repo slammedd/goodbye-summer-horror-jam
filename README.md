@@ -46,3 +46,9 @@ https://joscanper.itch.io/psx-horror-puzzle-item-pack
 
 Lighter by camilla on Sketchfab:
 https://sketchfab.com/3d-models/lighter-b640aa4990b64db9ab3d868c6f49820e
+
+Round swimming pool by 1-3D.com on Sketchfab:
+https://sketchfab.com/3d-models/round-swimming-pool-2ccb8fe6e25e44aa9e539816bf983738
+
+Malamute Dinner Music by be-steele on freesound.org:
+https://freesound.org/people/be-steele/sounds/128034/
