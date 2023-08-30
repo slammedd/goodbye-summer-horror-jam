@@ -43,3 +43,6 @@ https://elegantcrow.itch.io/retro-psx-nature-pack
 
 PSX Horror puzzle item pack by joscanper on itch.io
 https://joscanper.itch.io/psx-horror-puzzle-item-pack
+
+Lighter by camilla on Sketchfab:
+https://sketchfab.com/3d-models/lighter-b640aa4990b64db9ab3d868c6f49820e
